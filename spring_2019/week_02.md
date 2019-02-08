@@ -1,4 +1,4 @@
-2/9/2019
+2/8/2019
 
 ## Last Week's Accomplishments
 
